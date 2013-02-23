@@ -1,0 +1,4 @@
+Preklad na hru: 
+=======
+
+Update:
